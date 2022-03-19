@@ -35,7 +35,7 @@
 
 ## 六、报名方式
 
-&nbsp;&nbsp;&nbsp;&nbsp;即日起接受申请。申请人须将个人简历（包括主要学习和研究经历）通过电子邮件发送至yingxmbio@foxmail.com或yingxm@bmi.ac.cn。邮件以“本科实习生-姓名-专业”为邮件的主题和附件的题目。本招收启事长期有效。
+&nbsp;&nbsp;&nbsp;&nbsp;即日起接受申请。申请人须将个人简历（包括主要学习和研究经历）通过电子邮件发送至yingxmbio@foxmail.com或yingxm@bmi.ac.cn。邮件以“硕博研究生-姓名-专业”为邮件的主题和附件的题目。本招收启事长期有效。
 
 ---
 
